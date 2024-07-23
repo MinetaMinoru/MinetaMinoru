@@ -1,5 +1,7 @@
 "*I brought a present! I mean, it's from all of us. It's a melon!!*"
 
+<img src="https://preview.redd.it/czrfj85rblz01.jpg?width=1080&crop=smart&auto=webp&s=26635ed31d021ab3d08ba7eb0673c72e78ac630e" width="500" />
+
 - I'm 18, so please be aware of that & only int if you're at least 15+.
 - Literally the #1 FBACC FAN EVER !! MY FAVE THING EVER ^_^ 
 - Mineta is my fave MHA character, if it's not obvious. You're 100% still allowed to int if you hate him, idc at all. But do NOT try to argue on if it's "ethical" or not to like him..I promise you it's not that deep.                                               

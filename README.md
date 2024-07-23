@@ -6,3 +6,4 @@
 +I don't like him for anything gross, to be clear. I think he's funny when he's given real jokes(*"Midoriya, you got none! They must've been grossed out by the crazy way you were fighting!*"), among other reasons.
 - I don't have a dni, I'll jst hide/block. But cuz I've seen a lot of weird ppl on the game I feel the need to mention if u ship child/adult or incest stuff, I'm hiding you, no exceptions. 
 - And that's all really. 
+![alt text](https://pbs.twimg.com/media/ESD2_GIUwAIfq-6.jpg)

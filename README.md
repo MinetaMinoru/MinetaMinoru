@@ -8,5 +8,5 @@
 +I understsnd why some people find him uncomfortable but I have my reasons for liking him so please respect it.
 
 - I don't have a dni, I'll jst hide/block. But cuz I've seen a lot of weird ppl on the game I feel the need to mention if u ship child/adult or incest stuff, I'm hiding you, no exceptions. Aside from gross stuff like that, though, never be afraid to interact!! I'm always willing to talk
-- And that's all rlly 
+- Feel free to add me on Disc @ Fannihilator ! And that's all rlly 
 ![alt text](https://pbs.twimg.com/media/ESD2_GIUwAIfq-6.jpg)

@@ -1,7 +1,3 @@
-"*I brought a present! I mean, it's from all of us. It's a melon!!*"
-
-<img src="https://preview.redd.it/czrfj85rblz01.jpg?width=1080&crop=smart&auto=webp&s=26635ed31d021ab3d08ba7eb0673c72e78ac630e" width="500" />
-
 - !! I'm 18, so please be aware of that & only int if you're at least 15+ !!
 - Literally the #1 FBACC FAN EVER !! MY FAVE THING EVER ^_^ 
 - Do NOT try to argue on whether it's "ethical" to like Mineta or not I promise you it's not that deep. I understand why he makes some people uncomfortable, but you gotta admit he still has good/funny scenes. So please respect my opinion and I will respect yours. + You can literally just hide/block me if it bothers you that much.

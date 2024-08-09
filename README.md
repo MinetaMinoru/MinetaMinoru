@@ -1,7 +1,7 @@
 - !! I'm 18, so please be aware of that & only int if you're at least 15+ !!
 - Literally the #1 FBACC FAN EVER !! MY FAVE THING EVER ^_^ 
 - Also a huuge MHA fan! If it's not clear enough the dni thing is a joke, I LOVE Mineta ! XD
-- Do NOT try to argue on if it's okay to like Mineta or not, I promise you it's not that deep. I get why some people don't, but you gotta admit he still has good/funny scenes. So please respect my opinion and I will respect yours. + You can literally just hide/block me if it bothers you that much.
+- Do NOT try to argue on if it's okay to like Mineta or not, I promise you it's not that deep. Just respect my opinion and I will respect yours. + You can just hide/block me if it bothers you that much
 - I don't have a dni, I'll jst hide/block. But because there's a lot of weird ppl in this game, I will mention if u ship child/adult or incest stuff, I'm hiding you, no exceptions. 
 - Aside from gross stuff like that, though, never be afraid to interact!! I'm always willing to talk
 - Feel free to add me on Disc @ Fannihilator ! And that's all rlly 

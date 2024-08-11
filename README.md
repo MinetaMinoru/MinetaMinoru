@@ -5,3 +5,5 @@
 - Aside from gross stuff like that, though, never be afraid to interact!! I'm always willing to talk
 - Feel free to add me on Disc @ Fannihilator ! And that's all rlly 
 <img src="https://file.garden/Zgb3pBYz2m6JmruU/now%20im%20considering.png" width="500" />
+
+The strawpage is jst for fun, not something you have to look through, all the info is here. Feel free to send gimmicks tho !! :D 

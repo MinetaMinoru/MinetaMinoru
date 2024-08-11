@@ -1,4 +1,4 @@
-- !! I'm 18, only int if you're at least 15+ !!
+- !! I'm 18, dont int if ur not at least 15+ !!
 - Literally the #1 FBACC FAN EVER !! MY FAVE THING EVER ^_^ 
 - Also a huuge MHA fan! If it's not clear enough the dni thing is a joke, I LOVE Mineta ! XD
 - I don't have a dni, I'll jst hide you. But because there's a lot of weird ppl in this game I will mention child/adult or incest is an instant block, no exceptions.

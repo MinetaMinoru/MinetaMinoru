@@ -1,4 +1,4 @@
-- !! I'm 18, so please be aware of that & only int if you're at least 15+ !!
+- !! I'm 18, only int if you're at least 15+ !!
 - Literally the #1 FBACC FAN EVER !! MY FAVE THING EVER ^_^ 
 - Also a huuge MHA fan! If it's not clear enough the dni thing is a joke, I LOVE Mineta ! XD
 - I don't have a dni, I'll jst hide you. But because there's a lot of weird ppl in this game, I will mention if u ship child/adult or incest stuff, I'm hiding you, no exceptions. 

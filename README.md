@@ -1,4 +1,7 @@
-<p align="center"> [ THE FRESH PICKED HERO: GRAPE JUICE 🍇🧃  ]</p>
+<p align="center">
+-🍇🧃-
+</p>
+<p align="center"> [ THE FRESH PICKED HERO: GRAPE JUICE ]</p>
 
 
 
@@ -16,4 +19,7 @@ The strawpage is just for fun, all the info is already here. Feel free to send g
 </p>
 <p align="center">
 [ "I want girls to love me..So I can touch them!" ]
+</p>
+<p align="center">
+-🍇🧃-
 </p>

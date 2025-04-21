@@ -8,8 +8,8 @@
 
 - THE #1 Minoru Mineta fan EVER in the whole world !!!!!!!! ^_^
 - 19
-- ❌ Under 18 in the 18+ server = perm hidden. Aside from that I hide whoever I want to, and if you are uncomfortable with me in any way you should do the same. I am not going to argue on a pony game..friendshiop is magic!! 
 - ✔️ Feel free to come up to me at any time I'll never mind! Whispers and literally anything else you can think of are totally cool too. No need to be shy!
+- ❌ Under 18 in the 18+ server = perm hidden. Aside from that I hide whoever I want to, and if you are uncomfortable with me in any way you should do the same. I am not going to argue on a pony game..friendshiop is magic!! 
 
 
 The strawpage is just for fun, all the info is already here. Feel free to send gimmicks tho, I appreciate it !!

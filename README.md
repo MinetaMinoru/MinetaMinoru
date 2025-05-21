@@ -8,7 +8,7 @@
 
 - THE #1 Minoru Mineta fan EVER in the whole world !!!!!!!! ^_^ 
 - 19
-- My interests are MHA (Obviously), Vigilantes, fbacc, bunny maloney, invader zim, robot jones, be more chill, moral orel, bendy, & mlp. If you enjoy any of these, feel free to talk to me about them or show me your skins. :]
+- I'm into MHA (Obviously), Vigilantes, fbacc, bunny maloney, invader zim, robot jones, be more chill, moral orel, bendy, & mlp. If you enjoy any of these, feel free to talk to me about them or show me your skins. :]
 - Even aside from that, in general feel free to come up to me at any time I'll never mind! Whispers and literally anything else you can think of are totally cool too. No need to be shy!
 
 You don't have to read my strawpage, all the info is already here. Feel free to send gimmicks tho, I appreciate it !! Even if it's just another penis.
